@@ -6,3 +6,7 @@ Easy songs to sing for me personally
 > Moh moh ke dhaage
 
 > Subanallah Chand sifarish
+
+> suraj hua maddham
+
+> 
